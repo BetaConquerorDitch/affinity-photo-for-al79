@@ -1,4 +1,4 @@
-
+Affinity Photo for macOS smart Template - real-time preview and grid systems is the best Affinity Photo for macOS template, featuring real-time preview and grid systems. Safe,
 
 
 
